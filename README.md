@@ -4,5 +4,5 @@
 
 ### Connect with me:
 
-[linkedin]: https://www.linkedin.com/in/sphesihle-mtwa-a33924206
+[LinkedIn](https://www.linkedin.com/in/sphesihle-mtwa-a33924206)
  
