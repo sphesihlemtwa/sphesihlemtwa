@@ -1,6 +1,6 @@
 ## Hi there, I'm Sphesihle
 
-I'm a CS student at the University of Pretoria
+I'm a CS student at the University of Pretoria. I am 
 
 Connect with me:
 
